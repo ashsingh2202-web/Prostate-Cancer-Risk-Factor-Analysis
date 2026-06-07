@@ -206,4 +206,4 @@ SAS • Logistic Regression • Cancer Epidemiology • Biostatistics • Odds R
 
 📧 [ashsingh2202@gmail.com](mailto:ashsingh2202@gmail.com)
 
-🔗 linkedin.com/in/ashimasingh-mph
+💼 [LinkedIn](https://www.linkedin.com/in/ashimasingh-mph/)
